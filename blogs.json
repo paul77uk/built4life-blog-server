@@ -1,0 +1,20 @@
+[
+  {
+    "id" : 1,
+    "date" : "14-12-2025",
+    "thumbnail_url" : "https://github.com/paul77uk/built4life-blog-server/blob/main/images/sandbag.png?raw=true",
+    "content_url" : "https://raw.githubusercontent.com/paul77uk/built4life-blog-server/refs/heads/main/blogs/14-12-2025.md"
+  },
+  {
+    "id" : 2,
+    "date" : "15-12-2025",
+    "thumbnail_url" : "https://github.com/paul77uk/built4life-blog-server/blob/main/images/IMG_20251226_164321~2.jpg?raw=true",
+    "content_url" : "https://raw.githubusercontent.com/paul77uk/built4life-blog-server/refs/heads/main/blogs/15-12-2025.md"
+  },
+  {
+    "id" : 3,
+    "date" : "16-12-2025",
+    "thumbnail_url" : "https://github.com/paul77uk/built4life-blog-server/blob/main/images/IMG_20251226_164409~2.jpg?raw=true",
+    "content_url" : "https://raw.githubusercontent.com/paul77uk/built4life-blog-server/refs/heads/main/blogs/16-12-2025.md"
+  }
+]
