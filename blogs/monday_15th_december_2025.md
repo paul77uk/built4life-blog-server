@@ -1,0 +1,8 @@
+Still only managed 1 sandbag clean & press
+But 10 min emom singles of sandbag clean & press.
+
+Did each side straight after the other for 10 reps each side shoulder carries.
+Then did 2 minutes on the minute, doing each side within the 2 minutes, for 8 metres each.
+I just did 3 rounds, will increase overtime, but may have to change things when my carries get longer.
+
+Maybe that will do for today, don't want to push it too much, I know not much but it will increase overtime.
