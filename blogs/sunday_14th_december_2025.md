@@ -1,0 +1,52 @@
+Just received my Cerebus SandStone the other day.
+
+Today filled it and gave it a try.
+
+It's well constructed.
+
+It's a 60kg bag, but I only put 50kg in so far, which still feels nice, even if not packed solid.
+
+will add some pics
+
+On first try out, Sunday 14th Dec 2025:
+
+This is the start of my journey.
+I didn't go all out today, as have an early start for work tomorrow.
+
+Friday evenings may push things a bit more.
+But will try and get a minimum through the week, even if very low volume and intensity at first.
+
+Anyway today I managed.
+
+Clean & Press: 1 rep (think could easily get more, but it's gonna be a progression, and taking it easy until maybe Friday)
+Clean (or more like sandbag to chest version): 2 reps
+Overhead Press: 2 reps
+Sandbag to shoulder: 4 reps each side
+Bearhug Carry: 10 metres
+Shoulder Carry: 10 metres each side
+Bearhug Squat: 4
+
+will add some vids to newly created youtube channel
+
+I'm thinking of a program where I may do like amrap in 20 mins for certain exercises, maybe 2 a day, could even do emom instead of amrap.
+May train just 3 days a week.
+ 
+I was thinking like Monday could 1 set amrap clean & press, then maybe emom, singles, doubles, whatever can manage at first and build up.
+Maybe even do 10 min first and build up to 20 min.
+Then was thinking of shoulder carry each side, first for amrap, then do the emom, maybe 10 min for one side, a short break then 10 min the other side.
+Not sure I would do an emom with the carries though, maybe how many metres in 10 min
+
+Then Wednesday Squats, the same amrap set, then 10-20 min emom.
+Then a Overhead Press, amrap set, then maybe 10-20 min emom.
+
+Friday - Shouldering, amrap, then emom 10-20 min, do all one side first, then slight rest before other side.
+Then after short rest, bearhug carries, amrap, then 10-20 min emom.
+
+This is probably going to be difficult to do at first, as have quite a physical job, and up at 4am.
+I would do these after work, but don't want to fatigue myself too much through the week.
+So may start at shorter emoms first and progress through weeks.
+Maybe start at 5 min emoms and work up, but will see how i feel on the days.
+Maybe could even change which workout I do on the Friday each week, so i can push different exercises different weeks.
+But problem is, I am tired come Friday, but less worried of pushing it as have 2 days rest, but am more fatigued towards end of the week.
+Maybe an idea to fit a Saturday morning in.
+All this is ideas, and will see what happens when faced with the reality of the day.
